@@ -271,3 +271,7 @@ that commitment.
 Begin with their ceremony. It symbolizes the participation. Joining the Tribe. 
 
 https://www.mnopedia.org/event/treaty-traverse-des-sioux-1851
+
+Two people cannot atone for the sins of all. The attonment itself is
+the new system and the new world: that which is brought together to be
+one. Atone is literally "at one".
